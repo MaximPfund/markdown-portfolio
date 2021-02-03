@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- Djing
+  - House
+  - Techno
+  - Deephouse
+- surfing waves :surfing:
+- watching and playing American Football
+- travel
